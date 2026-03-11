@@ -20,8 +20,7 @@ Interventions en **audit**, **migration**, **support** et **documentation techni
 
 ## 📍
 
-Chambéry — Savoie (73)
-Disponible en Auvergne-Rhône-Alpes et full remote
+Marseille (13) · France entière + Remote
 
 ---
 
